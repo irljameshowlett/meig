@@ -4,6 +4,8 @@ name: ethan
 
 profession: fat chud
 
+<img width="1199" height="399" alt="image" src="https://github.com/user-attachments/assets/d0252e13-372b-4fca-8660-f395a2bf34e3" />
+
 likes: marvel, dc, weezer, slipknot, radiohead, cigarettes after sex (aww he a white boy), morgan wallen, pokemon, dexter (the tv show), baseball, being annoying, calling vivi, buying vivi food..
 
 dislikes: vivi sighs
