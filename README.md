@@ -1,6 +1,6 @@
 # about ethan
 
-likes: marvel, dc
+likes: marvel, dc, weezer, slipknot, radiohead, cigarettes after sex (aww he a white boy), morgan wallen, pokemon, dexter (the tv show), baseball, being annoying, calling vivi, buying vivi food..
 
 dislikes: vivi sighs
 
@@ -10,3 +10,4 @@ feel free to int on ponytown, likely with vivi though.
 
 dni: dandy's world, hazbin hotel, helluva boss.
 yall weird.
+homophobes, transphobes, politics. like cmon? its a pony pixel game. grow a brain.
